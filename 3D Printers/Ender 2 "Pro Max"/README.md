@@ -4,7 +4,6 @@
 ![](https://github.com/silabj/Projects/blob/main/Images/Ender%202%20Pro%20Max/V1_4.png)
 ![](https://github.com/silabj/Projects/blob/main/Images/Ender%202%20Pro%20Max/V2_1.png)
 ![](https://github.com/silabj/Projects/blob/main/Images/Ender%202%20Pro%20Max/V2_2.png)
-![](https://github.com/silabj/Projects/blob/main/Images/Ender%202%20Pro%20Max/V2_1.png)
 
 https://github.com/user-attachments/assets/f45bb156-ad14-4f00-9d3c-4943521fcf56
 
