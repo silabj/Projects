@@ -1,0 +1,8 @@
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/Exploded%20View.gif)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/1.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/2.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/3.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/4.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/5.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/6.png)
+![](https://github.com/silabj/Projects/blob/main/Images/Imitation%2060/7.png)
