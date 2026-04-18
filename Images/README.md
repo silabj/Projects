@@ -1,1 +1,1 @@
-image directory
+image assets
